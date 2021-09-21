@@ -1,1 +1,1 @@
-Check out my bio at https://github.com/msprem88/msprem88.github.io
+Check out my bio at https://msprem88.github.io
